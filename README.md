@@ -5,4 +5,4 @@ Your favorite sports athletes in emoji
 
 :basketball: :crown: lebron(edited)
 
-:ice_hockey_stick_and_puck: :king: henrik lunqvist
+:ice_hockey_stick_and_puck: :crown: henrik lunqvist
