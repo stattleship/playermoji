@@ -12,3 +12,7 @@ Your favorite sports athletes in emoji
 
 :rose: Derrick Rose
 
+See: http://www.rsvlts.com/2015/07/09/emoji-guide-to-nba-players/
+
+
+
